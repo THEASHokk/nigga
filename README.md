@@ -1,2 +1,3 @@
 # nigga
-chakka deep
+deep shiih
+run away from jod.......
